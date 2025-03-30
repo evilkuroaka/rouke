@@ -9,3 +9,6 @@ embarrassingly awkward & prolly wont talk outside of party/whisps if im w a frie
 too broke to pay for therapy so i make myself rewatch alnst and try to beat ZENO 13 times
 
 i love.. my oomfs...
+
+
+![image_2025-03-30_050517961](https://github.com/user-attachments/assets/fb66f091-650f-462a-b6f7-8fa1aafa106b)
