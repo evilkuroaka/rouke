@@ -13,4 +13,7 @@ i love.. my oomfs...
 
 [page straw](https://zenorook.straw.page)
 
+![image_2025-03-30_051843939](https://github.com/user-attachments/assets/8895606f-a10b-4d53-984b-c16ed88e7859)
+
+
 ![image_2025-03-30_050517961](https://github.com/user-attachments/assets/fb66f091-650f-462a-b6f7-8fa1aafa106b)
